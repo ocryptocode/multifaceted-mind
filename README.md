@@ -15,4 +15,10 @@ I build
 
 Explore my website and let me create anything you want.
 
+I also have a large experience in web3.
+
+I specialize in marketing , coding and community building.
+
+That's what I call the multifaceted mind.
+
 (coming soon)
