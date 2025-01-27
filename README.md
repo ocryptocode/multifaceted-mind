@@ -22,3 +22,5 @@ I specialize in marketing , coding and community building.
 That's what I call the multifaceted mind.
 
 (coming soon)
+
+In direct links to VORTEX innovations
